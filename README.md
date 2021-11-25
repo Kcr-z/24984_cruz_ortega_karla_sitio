@@ -1,1 +1,0 @@
-# 24984_cruz_ortega_karla_sitio
